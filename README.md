@@ -1,2 +1,2 @@
-# bismilahj-jadi
+# bismilah-jadi
 testing terus sampe meledak
